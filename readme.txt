@@ -1,2 +1,2 @@
 my name is jbh
-I am brilliant
+I am brilliant and patient
